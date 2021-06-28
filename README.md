@@ -6,4 +6,4 @@ I am a high school computer student 😍
 ✨CTISM/UFSM✨
 
 
-Follow me https://instagram.com/tefa_piove?utm_medium=copy_link
+Follow me https://instagram.com/tefa_piove?utm_medium=copy_link :)
