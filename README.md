@@ -1,4 +1,4 @@
-### Hi guys💭
+### Hey guys💭
 
 Hello! My name is Stéfani, but I prefer you call me Tefa :)
 I am a high school computer student 😍
@@ -8,7 +8,7 @@ I am a high school computer student 😍
 
 Follow me https://instagram.com/tefa_piove?utm_medium=copy_link 
 
-◼ My hobbies are:
+### My hobbies are:
 
 •	Play Free Fire 🎮
 
@@ -19,7 +19,7 @@ Follow me https://instagram.com/tefa_piove?utm_medium=copy_link
 •	Watch movies and series 🎬
 
 
-◼ My favorite movies:
+### My favorite movies:
 
 • Pirates of the Caribbean🏴‍☠️
 
@@ -30,7 +30,7 @@ Follow me https://instagram.com/tefa_piove?utm_medium=copy_link
 ![image](https://user-images.githubusercontent.com/85496004/125177982-c62bf880-e1b6-11eb-8361-b30619b0b235.png)
 
 
-◼ My favorite series:
+### My favorite series:
 
 • Lúcifer👿
 
@@ -42,4 +42,6 @@ Follow me https://instagram.com/tefa_piove?utm_medium=copy_link
 ![image](https://user-images.githubusercontent.com/85496004/125178101-ea3c0980-e1b7-11eb-9948-71e72a6434e2.png)
 
 
-💖Invite me to do any of these things!💖
+
+💖Invite me to do any of these things💖
+### have a nice day, bye!
