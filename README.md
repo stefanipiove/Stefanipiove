@@ -8,6 +8,8 @@ I am a high school computer student 😍
 
 Follow me https://instagram.com/tefa_piove?utm_medium=copy_link 
 
+E-mail: stefanipiove@gmail.com
+
 ### My hobbies are:
 
 •	Play Free Fire 🎮
