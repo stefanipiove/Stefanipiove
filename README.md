@@ -1,18 +1,19 @@
 ### Hey guys💭
 
 Hello! My name is Stéfani, but I prefer you call me Tefa :)
-I am a high school computer student 😍
+I am a high school computer student😍
 
 ✨CTISM/UFSM✨
 
 
-Follow me https://instagram.com/tefa_piove?utm_medium=copy_link 
+I'm from Nova Palma, but now I live in Santa Maria
+
+Follow me [Instagram](https://instagram.com/tefa_piove?igshid=YmMyMTA2M2Y=)
 
 E-mail: stefanipiove@gmail.com
 
-### My hobbies are:
 
-•	Play Free Fire 🎮
+### My hobbies are:
 
 •	To design 🎨
 
